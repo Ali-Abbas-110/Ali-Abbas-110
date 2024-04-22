@@ -45,7 +45,7 @@
 
 - 📄 Know about my experiences [my experiences](https://github.com/Ali-Abbas-110)
 
-- ⚡ Fun fact **I am Not work for money**
+- ⚡ Fun fact **I Love compliments **
 
 <br>
 <h3 align="left">Connect with me:</h3>
